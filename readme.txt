@@ -1,1 +1,2 @@
 名企bi班_week1_keep
+第一次作业，thinking+action1部分
